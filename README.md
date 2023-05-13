@@ -1,2 +1,2 @@
 # Minor-Project
-Minor Project On Historical Projects
+Minor Project On Historical Heritages Projects
